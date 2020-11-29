@@ -13,11 +13,7 @@ Join The [Discord Server for Discussion](https://discord.gg/RMgwEsq)
 [Subscribe to My Channel](https://www.youtube.com/c/SubhraTheGeek)
 
 
-
-
-
 Please Provide me with your valuable suggestions...…
-
 
 
 ----------------------------------------------------------------------------------------------------------------------------
@@ -34,9 +30,8 @@ Webcam: Logitech C210
 
 Recording Software: OBS Studio
 
-
 ---------------------------------------------------------------------------------------------------------------------------
-Follow ##Debayan on
+Follow <strong>Debayan</strong> on
 
 [Website](https://dexter1618.github.io)
 
@@ -45,24 +40,15 @@ Follow ##Debayan on
 [Facebook](https://www.facebook.com/Dexter1618/)
 
 ---------------------------------------------------------------------------------------------------------------------------
-Follow me on
-
-[Website](https://s2kthegeek.github.io)
-
-[LinkedIn](https://www.linkedin.com/in/subhrasamirk97/)
-
-[Facebook](https://www.facebook.com/subhrasamirk/)
-
-[Instagram](https://www.instagram.com/s2k_thegeek/)
-
-[Twitter](https://twitter.com/SUBHRA_THEGEEK)
-
----------------------------------------------------------------------------------------------------------------------------
 
 Do comment like share and subscribe
 Happy to help
 
 [Subscribe to My Channel](https://www.youtube.com/channel/UCO3ES2brpzn1a0v-rGjYRrg)
+
+[Website](https://s2kthegeek.github.io)
+
+[LinkedIn](https://www.linkedin.com/in/subhrasamirk97/)
 
 [Facebook](https://www.facebook.com/subhrasamirk/)
 
