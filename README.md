@@ -36,11 +36,11 @@ Recording Software: OBS Studio
 
 
 ---------------------------------------------------------------------------------------------------------------------------
-Follow Debayan on
+Follow ##Debayan on
 
 [Website](https://dexter1618.github.io)
 
-LinkedIn](https://www.linkedin.com/in/dexter1618/)
+[LinkedIn](https://www.linkedin.com/in/dexter1618/)
 
 [Facebook](https://www.facebook.com/Dexter1618/)
 
